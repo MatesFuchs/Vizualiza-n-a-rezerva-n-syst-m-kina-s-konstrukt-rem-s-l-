@@ -1,0 +1,1 @@
+# Vizualiza-n-a-rezerva-n-syst-m-kina-s-konstrukt-rem-s-l-
